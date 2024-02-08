@@ -1,3 +1,3 @@
-## ZachCJ's GitHub Page
+# ZachCJ's GitHub Page
 
-# ** Nothing to see hear yet **
+ ** Nothing to see hear yet **
